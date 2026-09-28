@@ -1,0 +1,2 @@
+# premium-dry-stack-wall-001-dry-stack-stone-wall-batter
+Tracking dry stack stone wall projects across multiple systems is eating up your creative time. The Dry Stack Stone Wall &amp; Batter Lean Craft Hub consolidates every detail—measurements, material specs, batter angles, and project timelines—into one organized Notion workspace.  This template eliminates the guesswork and scattered notes that slow down
